@@ -1,0 +1,1 @@
+Un pequeño arbusto que se encuentra aleatoriamente en el **[[Bosque]]**, en el que **[[William Peters]]** puede esconderse de la **[[Bruja]]**.

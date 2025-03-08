@@ -1,0 +1,1 @@
+Otorgan beneficios como más tiempo o velocidad adicional durante unos segundos.

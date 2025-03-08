@@ -1,0 +1,1 @@
+Objeto interactivo que sirve como de defensa y solo hace que la **[[Bruja]]** se aturda por **3 segundos**.

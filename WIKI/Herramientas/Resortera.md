@@ -1,0 +1,1 @@
+Dispara **[[Piedras]]** que pueden golpear objetos del entorno para hacer ruido y distraer a la **[[Bruja]]**. Es una de las únicas **[[##Herramientas]]** que **[[William Peters]]** tendrá por defecto en el juego.

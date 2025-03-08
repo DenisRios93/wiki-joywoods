@@ -1,0 +1,1 @@
+La guarida de la [[Bruja]] en el corazón del [[Bosque]], donde lleva a sus víctimas para extraer sus almas.

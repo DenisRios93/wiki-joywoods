@@ -1,0 +1,1 @@
+Se encontrará en el mapa cerca de objetos, por lo cual **[[William Peters]]** deberá tener cuidado al decidir si es necesario ir por ellos, ya que se ralentiza al pasar por este camino.

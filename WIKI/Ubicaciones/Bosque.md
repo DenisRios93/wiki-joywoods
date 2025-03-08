@@ -1,0 +1,1 @@
+El denso [[Bosque]] que rodea el [[Campamento Joywoods]], donde la [[Bruja]] acecha y secuestra a los niños.

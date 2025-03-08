@@ -1,0 +1,1 @@
+El [[Campamento Joywoods]] donde [[William Peters]] es dejado por sus padres. Aquí ocurren la mayoría de los eventos iniciales del juego.

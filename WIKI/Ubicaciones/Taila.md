@@ -1,0 +1,1 @@
+Un pequeño pueblo ficticio donde todos viven felices, rodeados de naturaleza. Los climas son muy fríos hasta que llega el verano, la mejor época del año para los niños, ya que pueden jugar y explorar sin preocupaciones.

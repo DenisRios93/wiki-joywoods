@@ -1,0 +1,1 @@
+Un fruto firme que, al impactar, inmoviliza a la **[[Bruja]]** por **3 segundos**. Se encuentra aleatoriamente cerca de los robles y es un arma de defensa clave. A diferencia de otros objetos, las piñas sí dañan a la **[[Bruja]]** reduciendo su velocidad por un tiempo.
